@@ -1,0 +1,1 @@
+# Simple_beginner_friendly_mini_projects
